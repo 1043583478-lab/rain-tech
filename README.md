@@ -1,10 +1,10 @@
 # rain-tech
-A kind of learning, A kind of discribe.
+When we contemplate self‑expression, we retrieve relevant information from our minds and shape corresponding forms of communication. 
 
-When we think about how to express ourselves, we always fetch the relevant information in our minds and simulate the corresponding forms. 
+Humans are inherently a kind of large language model—yet now the tide is turning. 
 
-We ourselves were once a kind of large language model, but now, things are beginning to change. Here is a new way of thinking in the face of AI. 
+This one offers a new way of thinking in the age of AI. 
 
-Humanity keeps evolving, needs to evolve, and benefits from evolution.
+Humanity evolves constantly, must evolve, and thrives through evolution. 
 
-Everything begins with a raindrop — the raindrop nourishes all things in silence.
+All begins with a single raindrop, nourishing all creation in quiet stillness.
