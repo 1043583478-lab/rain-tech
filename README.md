@@ -1,4 +1,4 @@
-# rain-tech
+# Rain-tech
 When we contemplate self‑expression, we retrieve relevant information from our minds and shape corresponding forms of communication. 
 
 Humans are inherently a kind of large language model—yet now the tide is turning. 
